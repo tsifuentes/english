@@ -2,7 +2,9 @@
 
 All following practices helped me to enhance my spoken, written, read, listened english. It is not a method, or the best ones for everybody but they worked for me as habits until now!
 
-Don't be shy! Native or English speaker will realize when you are beginning so they are tolerant. Find many ways to say: "Could you repeat please?" :)
+Don't be shy! Native or English speakers will realize when you are a beginner so they are tolerant. Find many ways to say: "Could you repeat please?" :D
+
+Relax and enjoy learning a new Language! once you get it, you will want to learn a one more, French, Portuguese, Chinese, so on... ;D
 
 Practices
 - Read an article aloud: no matters if you do not understand all words, you will identify them progressively
@@ -30,5 +32,7 @@ Resources
 - Inglesito on Youtube
 - Web Ingles on Youtube
 - "English File" phonetics
+
+Do not forget, keep practicing every day, every time you have the chance, take advantage of your break times!
 
 More...
